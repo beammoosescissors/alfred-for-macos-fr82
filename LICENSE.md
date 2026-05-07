@@ -1,4 +1,4 @@
-
+Get the ultimate Alfred for macOS automation with Alfred for macOS professional Automation - voice notes and focus mode. Featuring voice notes and focus mode, it's the best choice
 
 
 
